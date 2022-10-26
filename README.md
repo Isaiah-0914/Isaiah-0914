@@ -5,7 +5,7 @@
 [![@isaiah_06's Holopin board](https://holopin.io/api/user/board?user=isaiah_06)](https://holopin.io/@isaiah_06)
 - 📫 How to reach me ...
 facebooK : Isaiah Nkemboh
-intagram : isaiah_nkemboh
+intagram : isaiahnkemboh
 whatsapp : 00(237) 656625267
 
 <!---
